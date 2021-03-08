@@ -1,1 +1,1 @@
-# Masrer-Thesis-Research
+# Master-Thesis-Research
